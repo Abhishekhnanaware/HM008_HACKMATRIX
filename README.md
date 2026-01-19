@@ -38,7 +38,7 @@ AgroRent bridges the gap between farmers and equipment owners by providing:
 Link-( https://drive.google.com/drive/folders/1PMSneeiID7jFJXxF3WrE0TW-95SLM4Bi?usp=sharing )
 
 ##  Screenshots
-Link-( https://drive.google.com/drive/folders/1fqhwgxeT5C5vA6B8o34pYVvMrmwV59C1?usp=sharing )
+Link-((https://drive.google.com/drive/folders/1W83l8QNXACb0oA09vGebQSn5V_BX_evA?usp=sharing) )
 
 ---
 
